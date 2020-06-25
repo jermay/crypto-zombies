@@ -13,3 +13,6 @@ https://share.cryptozombies.io/en/lesson/2/share/Beezy
 
 Lesson 3:
 https://share.cryptozombies.io/en/lesson/3/share/Beezy
+
+Lesson 4:
+https://share.cryptozombies.io/en/lesson/4/share/Beezy?id=W251bGwsMSwxNF0=
