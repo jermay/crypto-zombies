@@ -16,3 +16,6 @@ https://share.cryptozombies.io/en/lesson/3/share/Beezy
 
 Lesson 4:
 https://share.cryptozombies.io/en/lesson/4/share/Beezy?id=W251bGwsMSwxNF0=
+
+Lesson 5:
+https://share.cryptozombies.io/en/lesson/5/share/H4XF13LD_MORRIS_%F0%9F%92%AF%F0%9F%92%AF%F0%9F%98%8E%F0%9F%92%AF%F0%9F%92%AF
